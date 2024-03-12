@@ -10,6 +10,7 @@ Group 4:
  - Tighe, Kaitlyn Patricia
  - Villavicencio, Josh Dane C.
 
-Video used during exhibit: https://www.youtube.com/watch?v=Zh9ge1XtqUA&ab_channel=KaitlynTighe
+Video used during the exhibit: https://www.youtube.com/watch?v=Zh9ge1XtqUA&ab_channel=KaitlynTighe
+Documentation of booth: https://www.canva.com/design/DAF_MCb6yx0/cu_nBI7j4dWjm93ma5Lx7w/view?utm_content=DAF_MCb6yx0&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
 
